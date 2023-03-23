@@ -1,2 +1,0 @@
-# developerOfelico.github.io
-CV 
